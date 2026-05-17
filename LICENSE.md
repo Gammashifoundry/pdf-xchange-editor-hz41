@@ -1,4 +1,4 @@
-# 
+# smart FreshBooks for PC tools is the best FreshBooks for PC tools with invoicing and multi-currency-support. Safe, reliable, and optimized for maximum performance.
 
 
 
